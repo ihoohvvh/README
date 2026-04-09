@@ -6,4 +6,5 @@ C+H+K FREELY!!! be free to interact if i catch ur eyeeeee (sorry,ill return late
 yesss, even if u have skin of character that person next to me is having too
 
 pleasEE interact if u Half Life, Cry Of Fear, SCP, Postal, Hatred or other cool games-fan
+
 if u read it, spell RUN outloud
