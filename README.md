@@ -12,4 +12,5 @@ i lil bit dumb and cold at talking and stuff cos lang barrier, its not because i
 
 pleasEE interact if u Half Life, Cry Of Fear, SCP, Postal, Hatred or other cool games-fan
 
-if u read it, spell hyma domi outloud
+Yo if u wanna play minecraft with me add my xbox @HymaDomi
+
